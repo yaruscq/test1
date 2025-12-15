@@ -1,9 +1,7 @@
-# Sonnet: The Infernal Realm
+Sonnet: The Infernal Realm
 
 Amidst the flames that dance with wicked glee,
 Where shadows writhe and tortured souls do cry,
-A Sonnet abut Hell
-
 The gates of hell stand open wide and free,
 Beneath a sky of fire, dark and high.
 The ground itself does crack and split apart,
